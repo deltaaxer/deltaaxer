@@ -1,6 +1,6 @@
 
 
-![image alt](https://github.com/deltaaxer/deltaaxer/blob/86bd95e566ad16a3dd01a9912c12be6faf2083e4/tumblr_dfe3830b708dc70436fe872f5e00fa16_7f3261da_400.png) ![image alt](https://github.com/deltaaxer/deltaaxer/blob/db5b7706bc4d67b7271ec936a11c3c62b537e8de/tumblr_585a788a52bf4943cc1c09037f624a9d_b3605888_250.png) ![image alt](https://github.com/deltaaxer/deltaaxer/blob/86bd95e566ad16a3dd01a9912c12be6faf2083e4/tumblr_dfe3830b708dc70436fe872f5e00fa16_7f3261da_400.png)
+![image alt](https://github.com/deltaaxer/deltaaxer/blob/86bd95e566ad16a3dd01a9912c12be6faf2083e4/tumblr_dfe3830b708dc70436fe872f5e00fa16_7f3261da_400.png) ![image alt](https://github.com/deltaaxer/deltaaxer/blob/86bd95e566ad16a3dd01a9912c12be6faf2083e4/tumblr_dfe3830b708dc70436fe872f5e00fa16_7f3261da_400.png)
 
 # ✦ : Hi there! 
 
